@@ -1,1 +1,0 @@
-# akupar.github.io
